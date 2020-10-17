@@ -30,6 +30,8 @@ very long pause...
 ***
 I am not Lazy, I am on Energy Saving Mode.
 ***
+![b03d044029121a37d9df316146581931](https://user-images.githubusercontent.com/73019956/96334878-a2a5a880-1091-11eb-8f98-0376326f9981.jpg)
+***
 
 Programmer : Son , can you count to 10??
 3 year old son : 1 , 2 , .....
